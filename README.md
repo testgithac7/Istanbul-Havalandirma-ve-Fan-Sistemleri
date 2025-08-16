@@ -6,4 +6,3 @@ Havalandırma sistemleri ve fan sistemleri iç mekânlara temiz havayı kontroll
 İstanbul gibi trafiğin yoğun olduğu, egzoz ve endüstriyel kirliliğin yüksek seviyelerde bulunduğu bir şehirde, bu sistemler yalnızca konfor için değil aynı zamanda sağlık için de gereklidir.
 [istanbul havalandirma sistemleri](https://www.birlikfanhavalandirma.com)
 
-<a href="https://www.birlikfanhavalandirma.com" rel="dofollow" >İstanbul Havalandırma Sistemleri</a>
